@@ -1,4 +1,4 @@
-# Hello, I'm [Your Name]
+# Hello, I'm Piyush
 
 👨‍💻 Computer Science & AI Enthusiast | 🌌 Astronomy & 🤖 Robotics Enthusiast | 📡 SETI Enthusiast
 
